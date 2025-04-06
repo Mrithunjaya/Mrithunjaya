@@ -27,7 +27,7 @@ I’m passionate about making data work smart — blending AI, ML, and logical r
 
 ### 📫 Let’s Connect!
 - 📧 Email: mrithunjaya.d.r.2023.aids@ritchennai.edu.in
-- 🔗 LinkedIn:https://www.linkedin.com/in/mrithunjaya-d-r
+- 🔗 LinkedIn:www.linkedin.com/in/mrithunjaya-d-r-645185291
 
 ---
 
